@@ -9,13 +9,13 @@ Whether that's being architct , or working with customers and relaying that info
 I Enjoy learning and design, so any role that enables me to flex my eduction muscles is the right role for me
 
 ## My Hobbies
-One of my favorite things to do is play my children chess and show movies 
+My favorite things to do is play chess and see movies with my children
 🐱‍🏍😊
 
 "Adding a Headshot."
 
 # Yaniv Offir
-
+ 
 ![headshot](MyPic.JPG)
 
 Solution Arcthicet At Amdocs
