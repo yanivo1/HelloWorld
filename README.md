@@ -11,7 +11,11 @@ I Enjoy learning and design, so any role that enables me to flex my eduction mus
 ## My Hobbies
 One of my favorite things to do is play my children chess and show movies 
 🐱‍🏍😊
+
 "Adding a Headshot."
-Yaniv Offir
-Solution Arcthicet At Amdocs 
+
+# Yaniv Offir
+
 ![headshot](MyPic.JPG)
+
+Solution Arcthicet At Amdocs
