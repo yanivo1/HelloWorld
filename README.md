@@ -12,6 +12,8 @@ I Enjoy learning and design, so any role that enables me to flex my eduction mus
 My favorite things to do is play chess and see movies with my children
 🐱‍🏍😊
 
+# favorite books
+
 "Adding a Headshot."
 
 # Yaniv Offir
